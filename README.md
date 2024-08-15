@@ -1,0 +1,1 @@
+hola! creame una imagen formal para una portada de un proyecto de mi clase de estadistica II que se llama: impacto de las practicas profesionales o pasantias en el desarrollo de las competencias laborales. 
